@@ -1,1 +1,0 @@
-# duncanfgmoore.github.io
